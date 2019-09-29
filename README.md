@@ -5,6 +5,8 @@ Hitech Crime Single 'Ja Nie Mogę Tak Żyć'
 
 ## Project Data
 
+Polish rap.
+
 HELYX BEAT
 
 **Title:** Ja Nie Mogę Tak Żyć / **Featuring:** MOTHNODE
