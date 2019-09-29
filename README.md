@@ -1,13 +1,13 @@
 # MOTHNODE_ Ja Nie Mogę Tak Żyć (Prod. Retnik)
 Hitech Crime Single 'Ja Nie Mogę Tak Żyć'
 
-**Listen now:**
+**Listen now:** x
 
 ## Project Data
 
 HELYX BEAT
 
-**Title:** Profiles of Negation / **Featuring:** MOTHNODE
+**Title:** Ja Nie Mogę Tak Żyć / **Featuring:** MOTHNODE
 
 **Production:** Retnik / **Lyrics:** MOTHNODE
 
